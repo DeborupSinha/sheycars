@@ -1,2 +1,0 @@
-deborup chutiya hai
-
